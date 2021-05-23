@@ -1,0 +1,1 @@
+first of all take 2-3 cup water in a boul and boli it for 2 min then take maggie in it and mix maggie msala in it and then vegitabels mix in it boli it of 4-5 min and your maggie is ready
